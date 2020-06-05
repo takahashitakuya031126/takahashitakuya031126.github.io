@@ -1,1 +1,1 @@
-# takahashitakuya031126.github.io
+初めて制作したLPです。

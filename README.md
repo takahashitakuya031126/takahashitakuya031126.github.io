@@ -1,1 +1,1 @@
-初めて制作したLPです。
+URL：https://takahashitakuya031126.github.io/
